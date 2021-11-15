@@ -1,1 +1,0 @@
-# Bariqadyatma_019_Praktikum05
